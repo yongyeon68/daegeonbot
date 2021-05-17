@@ -10,7 +10,7 @@
 ### 🌟논산대건고등학교의 위치 ---> http://gg.gg/umazl'
 ![image](https://user-images.githubusercontent.com/83765313/118446630-cebe0080-b72a-11eb-99a4-729f9b8e3b6e.png)
 
-#대건이
+# 대건이
 ⭐오른쪽 하단의 대건봇에게 궁금한 점들을 질문하세요!!⭐
 ![image](https://user-images.githubusercontent.com/83765313/118472408-c625f400-b743-11eb-9e46-25f3c505e6dd.png)
 
